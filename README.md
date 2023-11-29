@@ -1,2 +1,2 @@
 # Jogos-Vorazes
-Debora e Daniel
+Débora e Daniel
